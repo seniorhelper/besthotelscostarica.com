@@ -1,0 +1,2 @@
+# besthotelscostarica.com
+besthotelscostarica.com
